@@ -20,3 +20,28 @@ https://web.roblox.com/catalog/5213080181/Cutesy-bear-hood-Cutesy-bear
  https://web.roblox.com/catalog/7609134954/cute-bear-outfit-Shirt
  
  lol
+
+Perfect for girl avatar disguise lol
+
+https://www.roblox.com/catalog/6705097800/Black-bunny-maid-outfit-swag-lolol-cosplay-senpai
+
+https://www.roblox.com/catalog/11092359518/Smug-Anime-Face-Head
+
+https://www.roblox.com/catalog/8529258705/Stylish-White-Dyed-Black-Layered-Hair
+
+https://www.roblox.com/catalog/9239816125/Bunny-Black-Oversized-Jacket
+
+https://www.roblox.com/catalog/9557988760/ELMIRA-off-shoulder-jacket
+
+https://www.roblox.com/catalog/5830711420/Kawaii-Witch-Hat
+
+https://www.roblox.com/catalog/6036428833/Black-Holiday-Ruffled-Coat-3-0
+
+idle/walk
+
+https://www.roblox.com/bundles/82/Robot-Animation-Pack
+
+ngl i dont even know if this is needed:
+https://www.roblox.com/catalog/10159600649/8-Bit-Royal-Crown
+
+and thats all for trolli- i mean disguising ;)
