@@ -45,3 +45,7 @@ ngl i dont even know if this is needed:
 https://www.roblox.com/catalog/10159600649/8-Bit-Royal-Crown
 
 and thats all for trolli- i mean disguising ;)
+
+upleased eyes
+
+https://www.roblox.com/catalog/12123235294/Unpleased-Blushy-Eyes
