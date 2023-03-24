@@ -56,3 +56,6 @@ https://www.roblox.com/catalog/12123235294/Unpleased-Blushy-Eyes
 --// Here are sus stuff I guess \\--
 
 https://create.roblox.com/marketplace/asset/6542331449/Anime-Girl-Messages
+
+--// How to bypass 10k tri limit in roblox \\--
+https://devforum.roblox.com/t/tutorial-how-to-increase-roblox-maximum-triangles-to-21k-instead-10k/1549869
