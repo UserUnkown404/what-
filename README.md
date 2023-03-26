@@ -59,3 +59,7 @@ https://create.roblox.com/marketplace/asset/6542331449/Anime-Girl-Messages
 
 --// How to bypass 10k tri limit in roblox \\--
 https://devforum.roblox.com/t/tutorial-how-to-increase-roblox-maximum-triangles-to-21k-instead-10k/1549869
+
+--// obfuscate require \\--
+https://obfuscator.io/
+https://www.youtube.com/watch?v=clplM8wxaJc&ab_channel=c00lMast3rr
