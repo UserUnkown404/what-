@@ -63,3 +63,10 @@ https://devforum.roblox.com/t/tutorial-how-to-increase-roblox-maximum-triangles-
 --// obfuscate require \\--
 https://obfuscator.io/
 https://www.youtube.com/watch?v=clplM8wxaJc&ab_channel=c00lMast3rr
+
+-- // Cuteness Overkill \\--
+https://www.roblox.com/outfit-copier/146576379#:~:text=rainbwoah-,cuteness%20overkill,-pink
+
+to find the specific avatar press (ctrl + F)
+then type in "cuteness overkill", then after that
+copy it :D
