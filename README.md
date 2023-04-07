@@ -51,7 +51,10 @@ upleased eyes
 https://www.roblox.com/catalog/12123235294/Unpleased-Blushy-Eyes
 ![Screenshot 2023-01-24 144337](https://user-images.githubusercontent.com/97831592/214228369-6342ce9c-7589-4491-ac0c-4d122457ce28.png)
 
+--//UGC'S\\--
+idk
 
+https://www.roblox.com/catalog/13023643006/Kawaii-Face
 
 --// Here are sus stuff I guess \\--
 
@@ -62,6 +65,7 @@ https://devforum.roblox.com/t/tutorial-how-to-increase-roblox-maximum-triangles-
 
 --// obfuscate require \\--
 https://obfuscator.io/
+
 https://www.youtube.com/watch?v=clplM8wxaJc&ab_channel=c00lMast3rr
 
 -- // Cuteness Overkill \\--
